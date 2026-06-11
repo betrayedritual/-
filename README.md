@@ -1,1 +1,2 @@
-# -<img src="https://i.pinimg.com/736x/f1/98/2c/f1982ccd326021b61e6cbbd98b962973.jpg" alt="Story pin image"/><img width="735" height="649" alt="image" src="https://github.com/user-attachments/assets/30624d11-7ad1-461e-8821-b2b08b5d999d" />
+<img width="735" height="649" alt="f1982ccd326021b61e6cbbd98b962973" src="https://github.com/user-attachments/assets/554eaf45-de5d-4cca-84ce-e772b01a37f7" />
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤthey/them int ok?
